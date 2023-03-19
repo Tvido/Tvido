@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tvido
-- 👀 I’m interested in car`s headlight & coding.
+- 👀 I’m interested in coding.
 - 🌱 I’m graduated SoftServe Academy.
 - 💞️ I’m looking someone to collaborate.
 - 📫 How to reach me viter.volodymyr.d@gmail.com
